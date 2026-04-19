@@ -1,1 +1,1 @@
-# CV-Assignment2-Homograpics-Mosaics
+# CV-Assignment2-Homograpies-Mosaics
